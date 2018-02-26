@@ -1,0 +1,2 @@
+# nutspoker.club
+Primeira Versão
